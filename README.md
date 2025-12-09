@@ -1,0 +1,42 @@
+# Boowy – LIAR GIRL
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+ブラインド越しの空は
+紫のベルベット
+たわいの無いうそで
+君を見失いそうさ
+蒼い吐息だけ
+イリュージョン・タイム
+二人 溶けてゆく
+今夜 ケアレスな 悪魔を気取ろう
+ソフィアの足りない 天使のために
+忘れさせておくれ
+イリュージョン・タイム
+秘密の仕草で
+Oh Baby 試すのは
+もうやめにするよ
+傷つくけれどマジな恋だから
+Liar Girl but it's all right
+Liar Girl but it's all right
+Liar Girl but it's all right
+Liar Girl but it's all right
+ジェラシーなんて言葉は
+捨ててしまおう
+言い訳もなしに抱き合えればいい
+もう一度おくれ
+イリュージョン・タイム
+得意の奇跡を
+そして上手にだましておくれ
+愛はいつも気まぐれが似合イサ
+Liar Girl but it's all right
+Liar Girl but it's all right
+Liar Girl but it's all right
+Liar Girl but it's all right
+Liar Girl but it's all right
+Liar Girl but it's all right
+Liar Girl but it's all right
+Liar Girl but it's all right
+Liar Girl
+```
